@@ -20,3 +20,9 @@ ioaweujianfegn typed this
 ;o asdjgadfuvf
 a sugq phhi guys xcz
 # u aesfqsd;ugn
+
+why are u running ?????!!!!!
+why ???
+Yummi got nerf again 
+Aheplios is so broken 
+4 weapons 
